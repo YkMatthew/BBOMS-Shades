@@ -6,4 +6,5 @@ if google seas its a vires its not lol the codeing makes google think its a vire
 1. turn off real time protection!
 (if it seas its a vires its not lol its a minecraft glich :/ )
 2. and run it! it will auto go into your minecraft
-3. 
+
+   btw its bbom but i have the user as ykmatthew (its my vary vary old gamertag it was just on the email lol :3)
