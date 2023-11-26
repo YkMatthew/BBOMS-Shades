@@ -1,5 +1,5 @@
 # BBOMS-Shades
-THis is my new shader pack hehe :3
+This is my new shader pack hehe :3
 
 if google seas its a vires its not lol the codeing makes google think its a vires lol
 
